@@ -1,0 +1,2 @@
+# EUROMONEY
+New Cryptocurrency EUROMONEY
